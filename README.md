@@ -1,0 +1,2 @@
+# clubinfor
+know setting
